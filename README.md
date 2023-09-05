@@ -4,6 +4,7 @@
 
 ![Screenshot_2023-09-05-18-59-59-763_com example gtr_assignment](https://github.com/Tanvir1319/GTR_ASSIGNMENT/assets/113799587/03958aad-af33-4bb6-a716-0541ea21140c)
 
+![Screenshot_2023-09-05-18-59-59-763_com example gtr_assignment (1)](https://github.com/Tanvir1319/GTR_ASSIGNMENT/assets/113799587/ccd744a1-8cd5-405a-a7df-8461c85935fe)
 
 
 ![Screenshot_2023-09-05-19-00-02-712_com example gtr_assignment](https://github.com/Tanvir1319/GTR_ASSIGNMENT/assets/113799587/440896da-9fbd-4cbd-a602-7193951699e5)
